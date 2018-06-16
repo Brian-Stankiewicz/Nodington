@@ -2,7 +2,7 @@
 
 I grew up in the town of Millboro mining the Restful Mountains for the Rem Crystal.
 
-When I was 10-years old I actually died (or came close to dying) when the "sleepless" attacked our mining village and captured me and my family and burned us at the stake. At that time I and walked between the realms of the living and the dead. Desna came to me and showed me a vision of a great battle between me and [Lamashtu](https://pathfinderwiki.com/wiki/Lamashtu) and many others. After the vision of **The Great Battle** Desna showed me a second vision of her guiding and protecting my Father Jagrus, my Mother Mothola and my Sister Thelmeai on the journey into the heavens which they safely arrived--for this I was eternally grateful.
+When I was 10-years old I actually died (or came close to dying) when the "sleepless" attacked our mining village and captured me and my family and burned us at the stake. At that time I and walked between the realms of the living and the dead. Desna came to me and showed me a vision of a great battle between me and [Urgathoa](https://pathfinderwiki.com/wiki/Urgathoa) and many others. After the vision of **The Great Battle** Desna showed me a second vision of her guiding and protecting my Father Jagrus, my Mother Mothola and my Sister Thelmeai on the journey into the heavens which they safely arrived--for this I was eternally grateful.
 
 When they found us, we were all badly burned. My mother, father, sister and me were all dead. The priestess Bostidrid Windchest from the Temple of Desna came to pray over the dead bodies for safe passage into the Heavenly realm. When laying hands on me the Bostidrid saw the same vision of **The Great Battle** and coming out of her trans  she saw that I awoke from death.
 
@@ -18,11 +18,11 @@ Desna has "blessed" or "cursed" me with very powerful dreams that have been prop
 
 ### Relationship with Desna
 
-My relationship with Desna is "complicated". On the one hand I resent having these incomplete prophetic visions (and what it has done to my life) along with being asked me to "leave" my family in the middle-realm so that I could help her defeat Lamashtu. On the other hand, it was clear from the visions that my family would not have safely entered the heavenly plane without her guidance and protection.  
+My relationship with Desna is "complicated". On the one hand I resent having these incomplete prophetic visions (and what it has done to my life) along with being asked me to "leave" my family in the middle-realm so that I could help her defeat [Urgathoa](https://pathfinderwiki.com/wiki/Urgathoa). On the other hand, it was clear from the visions that my family would not have safely entered the heavenly plane without her guidance and protection.  
 
 ## Skills
 
-Because my family died at such a young age, I was raised by the Millboro village. I spent time with many families including the miller, many mining families, the blacksmith but in my later years I spent most of my time in the Temple of Desna. The priestess was very careful not to signal my role in **The Great Battle** for fear of tipping off Lamashtu and putting me into grave danger.
+Because my family died at such a young age, I was raised by the Millboro village. I spent time with many families including the miller, many mining families, the blacksmith but in my later years I spent most of my time in the Temple of Desna. The priestess was very careful not to signal my role in **The Great Battle** for fear of tipping off [Urgathoa](https://pathfinderwiki.com/wiki/Urgathoa) and putting me into grave danger.
 
 ## Family
 
