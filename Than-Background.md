@@ -1,5 +1,9 @@
-# Than Rockbottom's Background
 
+# Than Rockbottom
+
+**Than Rockbottom** is a dwarf cleric from Millboro who has delusions of grandeur and a death wish.
+
+## History
 I grew up in the town of Millboro mining the Restful Mountains for the Rem Crystal.
 
 When I was 10-years old I actually died (or came close to dying) when the "sleepless" attacked our mining village and captured me and my family and burned us at the stake. At that time I and walked between the realms of the living and the dead. Desna came to me and showed me a vision of a great battle between me and [Urgathoa](https://pathfinderwiki.com/wiki/Urgathoa) and many others. After the vision of **The Great Battle** Desna showed me a second vision of her guiding and protecting my Father Jagrus, my Mother Mothola and my Sister Thelmeai on the journey into the heavens which they safely arrived--for this I was eternally grateful.
@@ -26,11 +30,11 @@ Because my family died at such a young age, I was raised by the Millboro village
 
 ## Family
 
-* Father: Jagrus Rockbottom
-* Mother: Mothola Rockbottom
-* Sister: Thelmeani Rockbottom
-* Fiancé: Raenselle Emberbrow
-* Desna Priestess: Bostidrid Windchest
+* **Jagrus Rockbottom** (*Than's father*): Who was a peaceful bard from Millboro who searched for the knowledge of true immortality. He would often tinker in the basement with potions and contraptions. Although he never succeeded, Than believes that the sleepless attacked him and his family for something that he invented or found.
+* **Mothola Rockbottom** (*Than's mother*): Brave dwarf wizard from an unchartable island who was mute. Mothola always invited people from the village to Rockbottom House and enjoyed feeding them and listening to their stories.
+* **Thelmeani Rockbottom** (Than's younger sister): A beautiful young dwarf who never recognized her beauty and would disassemble things when she got nervous.
+* Raenselle Emberbrow (Than's fiancé): A dwarf slightly older than Than. She wasn't born in Millboro but arrived on Than's 60th birthday with only her father. She has dark black curly hair and deep blue eyes. She never stated where she was from other than "across the sea". Her and her father were very close and his death devastated her.
+* **Bostidrid Windchest** (Desna Priestess): An elderly elf who is says that she was a young girl during the *Sleepless Uprising*. She is a *Sleepless Sympathizer* in spite of being a dreamer. Although Bostidrid practically raised Than, Than has a difficult time with her *Sleepless Sympathy* given that the sleepless murdered his family.
 
 # Character Strengths and Flaws
 
